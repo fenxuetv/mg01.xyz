@@ -1,7 +1,7 @@
-# 蜜瓜TV https://mg01.xyz
+# 蜜瓜TV http://mg01.xyz
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://mg01.xyz
+##### :heart: :point_right: 【地址一】 ：http://mg01.xyz
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：fenxuetv@gmail.com
 
